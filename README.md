@@ -1,0 +1,2 @@
+# alkum
+Tetaplah menyerah
